@@ -118,7 +118,7 @@ There is a small (but growing), dedicated group of people that love to show off 
 
 [ ](https://twitter.com/fighterkites/status/1400141235558432769)
 
-![Bullitt bakfiet with multiple air conditioners in the front "box"](https://user-images.githubusercontent.com/465045/125380346-12ff0300-e360-11eb-9cbe-07fc4fa993f8.png)
+![Bullitt bakfiet with bulky carpentry tools in the front "box"](https://user-images.githubusercontent.com/465045/125380346-12ff0300-e360-11eb-9cbe-07fc4fa993f8.png)
 
 #### Kids <a href="kids" id="kids"></a>
 
